@@ -1,4 +1,4 @@
-# KUKOJR - La Promesa del Fútbol
+# KUKO.JR - La Promesa del Fútbol
 
 ¡Bienvenido!
 
