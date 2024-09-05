@@ -2,14 +2,13 @@
 
 ¡Bienvenido!
 
-En esta página, conoce más sobre **KUKOJR**, la promesa del fútbol. Descubre quién es, su trayectoria, y por qué está revolucionando el deporte rey.
+En esta página, conoce más sobre **KUKOJR**, la promesa del fútbol. Descubre quién es, su trayectoria, y por qué está revolucionando el deporte rey y muy guapo el papito.
 
 ## Contenido
 
 - [Sobre KUKOJR](#sobre-kuko-jr)
 - [Trayectoria](#trayectoria)
-- [Logros](#logros)
-- [Contacto](#contacto)
+- [Logros](#log)
 
 ## Sobre KUKOJR
 
@@ -21,11 +20,5 @@ Aquí encontrarás información detallada sobre el recorrido de KUKOJR, desde su
 
 ## Logros
 
-Explora los logros y premios que KUKOJR ha conseguido a lo largo de su carrera. Cada uno de ellos refleja su dedicación y esfuerzo en el campo de juego.
-
-## Contacto
-
-Si deseas ponerte en contacto con KUKOJR o conocer más sobre su trabajo, no dudes en visitarnos en las redes sociales o enviarnos un correo electrónico a [contacto@kuko-jr.com](mailto:contacto@kuko-jr.com).
-
-¡Gracias por visitar nuestra página y seguir la carrera de KUKOJR!
+1- medallista numero 1 de la cez.  2- mascota gabo del cez. 3- ser el mas destacado en los deportes.
 
